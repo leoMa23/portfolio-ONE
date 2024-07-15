@@ -14,4 +14,4 @@
 
 ###Leonel Franco Mamani
 
-### Linkedin: https://www.linkedin.com/](https://www.linkedin.com/in/leomadev/
+### Linkedin: https://www.linkedin.com/in/leomadev
